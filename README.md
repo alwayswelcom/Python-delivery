@@ -1,1 +1,1 @@
-# seekha-de.info
+# delivery site
